@@ -19,18 +19,35 @@
 
 
 
+The Design
 
-<!--
-**feliciousity/feliciousity** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Supportive Foundation
 
-Here are some ideas to get you started:
+PhilosopyTable of Contents
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+1. Development of my Programmatic Network
+
+2. Main configurations and sited sources
+
+3. Logics
+
+4. Ethics
+
+5. Outcome
+
+1. Development of my Programmatic Network
+
+Many key facts that need to also occur in order to complete the goal.
+
+Even after the Network is developed:
+
+I had to have a business license to even have my network be successfully managedLicenses and registeredSeeked support in a small business loan to start and launchRunning more tests to make sure I had mastered my skillsSecurity and insurance over my business?Promoting my Network
+
+Licensed and Certified
+
+Earned recognization from established corporations that already exist:
+
+Self learned and completed online certifications that helped in my process towards developmentEngaged constantlyFrequently read other tooltips onlineLearned through cited sourcesApplied to scholarships, grants, seeked out for investorsProvided full attention weekly check ins for updates or other statusExpressed and showed my self leadership, by taking charge myself, –“if you truly want it, go for it, get it”
+
+#creative-design, #designing-a-network, #network
+
